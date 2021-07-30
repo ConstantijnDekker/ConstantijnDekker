@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ConstantijnDekker
+- 👀 I’m interested in chess, programming mathematics. My main hobbies are solving programming/math problems, running and playing chess.
